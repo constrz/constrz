@@ -2,4 +2,4 @@
 hi leave a msg in new gb/rs if i didnt respond in pt thanksb 👍👍         
 <div align="left">
 
-[old guestbook](https://constrz.123guestbook.com/) [rentry](https://rentry.co/constrz) [retrospring](https://retrospring.net/@constrz) [new guestbook](https://constrz.atabook.org/) [harex's letter](https://rentry.co/l3tterFromHarex)
+[old guestbook](https://constrz.123guestbook.com/)[retrospring](https://retrospring.net/@constrz) [new guestbook](https://constrz.atabook.org/) [harex's letter](https://rentry.co/l3tterFromHarex)
