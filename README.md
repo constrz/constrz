@@ -3,4 +3,3 @@ hi leave a msg in ab/rs if i didnt respond in pt thanksb 👍👍
 <div align="left">
 
 [old guestbook](https://constrz.123guestbook.com/) [retrospring](https://retrospring.net/@constrz)
-[support me](https://ko-fi.com/renightshade)
