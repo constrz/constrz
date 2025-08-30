@@ -6,7 +6,7 @@
 
  
    [rentry](https://rentry.co/constrz)    ◞ ﹒
-  [strawpage](https://azurewrathes.straw.page)    ◞ ﹒  [atabook](https://constrz.atabook.org/)      ◞ ﹒   [main](https://github.com/mynightshade)
+  [strawpage](https://azurewrathes.straw.page)    ◞ ﹒  [atabook](https://constrz.atabook.org/)
 
   
 </div>
