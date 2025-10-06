@@ -6,7 +6,7 @@
 
  
    [rentry](https://rentry.co/constrz)
-  [sp](https://azurewrathes.straw.page) [ata](https://constrz.atabook.org/) [fanfic](https://rentry.co/verycoolomegaverse)
+  [sp](https://azurewrathes.straw.page) [ata](https://constrz.atabook.org/) [ffic](https://rentry.co/verycoolomegaverse)
 
   
 </div>
