@@ -2,11 +2,11 @@
   
 
 
-  <img src="https://files.catbox.moe/008rfl.png" alt="cool image" width="500"/>
+  <img src="https://files.catbox.moe/5j0wxz.png" alt="cool image" width="500"/>
 
  
-   [rentry](https://rentry.co/constrz)    ◞ ﹒
-  [strawpage](https://azurewrathes.straw.page)    ◞ ﹒  [atabook](https://constrz.atabook.org/)
+   [rentry](https://rentry.co/constrz)
+  [sp](https://azurewrathes.straw.page) [ata](https://constrz.atabook.org/)
 
   
 </div>
