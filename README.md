@@ -4,7 +4,9 @@
 
   <img src="https://files.catbox.moe/5j0wxz.png" alt="cool image" width="500"/>
 
- 
+ </div>
+
+ <div align="center">
 
   <!-- Rentry -->
   <a href="https://rentry.co/constrz">
