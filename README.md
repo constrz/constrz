@@ -15,6 +15,6 @@
   my bakas
 
   
-  **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO) [max](https://github.com/absoIutegenius)**
+  **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO)**
   
 </p>
