@@ -16,5 +16,7 @@
 
   
   **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO)**
+
+ ty to [@bikk](https://github.com/moonloverr) for most schizo friend badge to me
   
 </p>
