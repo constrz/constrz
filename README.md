@@ -18,5 +18,8 @@
   **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO)**
 
  ty to [@bikk](https://github.com/moonloverr) for most schizo friend badge to me
+ 
+  <img src="https://litter.catbox.moe/2q2lnu0cb3u4sk9y.png" alt="big ass" width="500"/>
   
+  remember what u did bikk.
 </p>
