@@ -18,8 +18,9 @@
   **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO)**
 
  ty to [@bikk](https://github.com/moonloverr) for most schizo friend badge to me
+
+ **the pony town car accident case**
  
-  <img src="https://litter.catbox.moe/2q2lnu0cb3u4sk9y.png" alt="big ass" width="500"/>
+  <img src="https://files.catbox.moe/oxmenc.jpg" alt="big ass" width="500"/>
   
-  bikk has murdered my friend and put 3 in coma. this action should be known by all pone.
 </p>
