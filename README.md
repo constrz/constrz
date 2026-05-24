@@ -15,7 +15,7 @@
   my bakas
 
   
-  **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO)**
+  **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO) [ado](https://github.com/purefatal)**
 
  ty to **[@moonloverr](https://github.com/moonloverr)** for most schizo friend badge to me
 
