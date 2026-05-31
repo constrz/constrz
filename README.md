@@ -8,7 +8,7 @@
 
  <div align="center">
    
-**[rentry](https://rentry.co/constrz)‎ ‎ ‎<img src="https://files.catbox.moe/sdbif6.png" alt="big ass" width="40"/> ‎ [atabook](https://constrz.atabook.org/)**
+**[unavailable]()‎ ‎ ‎<img src="https://files.catbox.moe/sdbif6.png" alt="big ass" width="40"/> ‎ [atabook](https://constrz.atabook.org/)**
 
 <div align="center">
 
