@@ -15,12 +15,10 @@
   my bakas
 
   
-  **[rose](https://github.com/reynanns) ♡ [kafu](https://github.com/REVERISTCALICO) [ado](https://github.com/purefatal)**
+  **‹[rose](https://github.com/reynanns) [kafu](https://github.com/REVERISTCALICO) [ado](https://github.com/purefatal) [bikk](https://github.com/moonloverr)𝟹**
 
  ty to **[@moonloverr](https://github.com/moonloverr)** for most schizo friend badge to me
 
- **the pony town car accident case**
- 
-  <img src="https://files.catbox.moe/xx8bjx.jpg" alt="i know what you did bikk." width="500"/>
+ **the pony town car accident case will be released soon**
   
 </p>
