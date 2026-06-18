@@ -18,7 +18,7 @@ ty to **[@moonloverr](https://github.com/moonloverr)** for most schizo friend ba
 <div align="center">
 
   
- **the pony town car accident case will be released soon**
+ **the pony town car accident**
 
  <img src="https://files.catbox.moe/t44xpw.jpg" alt="bikk stinki" width="500"/>
   
