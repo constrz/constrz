@@ -4,7 +4,7 @@
 my bakas
 
   
-  **‹[rose](https://github.com/reynanns) [kafu](https://github.com/REVERISTCALICO) [ado]() [bikk](https://github.com/moonloverr)𝟹**
+  **‹[rose](https://github.com/reynanns) [kafu](https://github.com/REVERISTCALICO) [bikk](https://github.com/moonloverr)𝟹**
 
   
  </div>
