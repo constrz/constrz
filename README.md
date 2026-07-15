@@ -4,7 +4,7 @@
 my bakas
 
   
-  **‹[rose](https://github.com/reynanns) [kafu](https://github.com/REVERISTCALICO)𝟹**
+  **‹[rose](https://github.com/reynanns) [kafu](https://github.com/REVERISTCALICO) [eun](https://github.com/purefatal)𝟹**
 
   
  </div>
