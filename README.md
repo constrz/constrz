@@ -11,16 +11,13 @@ my bakas
 
  <div align="center">
    
-**[rentry](https://rentry.co/constrz)‎ ‎ ‎<img src="https://files.catbox.moe/mrh3q5.png" alt="bumm" width="40"/> ‎ [atabook](https://constrz.atabook.org/)**
+**[rentry](https://rentry.co/constrz)‎ ‎ ‎<img src="https://files.catbox.moe/mrh3q5.png" alt="bumm" width="40"/> ‎ [atabook](https://constrz.atabook.org/)** 
 
 ty to **‹[@moonloverr](https://github.com/moonloverr)𝟹** for most schizo friend badge to me
 
+**[pt car accident](https://www.detectiveboard.io/public-board/3748e0b5-849d-402c-84ee-a8a89d18c773)**
+
 <div align="center">
-
-  
- **the pony town car accident**
-
- <img src="https://files.catbox.moe/t44xpw.jpg" alt="bikk stinki" width="500"/>
   
   
 </p>
