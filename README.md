@@ -11,7 +11,7 @@ my bakas
 
  <div align="center">
    
-**[rentry](https://rentry.co/constrz)‎ ‎ ‎<img src="https://files.catbox.moe/mrh3q5.png" alt="bumm" width="40"/> ‎ [atabook](https://constrz.atabook.org/)** 
+**[txto](https://txto.eu.org/constrz)‎ ‎ ‎<img src="https://files.catbox.moe/mrh3q5.png" alt="bumm" width="40"/> ‎ [ata](https://constrz.atabook.org/)** 
 
 ty to **‹[@moonloverr](https://github.com/moonloverr)𝟹** for most schizo friend badge to me
 
