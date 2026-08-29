@@ -19,5 +19,8 @@ ty to **‹[@moonloverr](https://github.com/moonloverr)𝟹** for most schizo fr
 
 <div align="center">
   
+<img src="https://files.catbox.moe/ne798l.png" alt="bumm" width="200"/>
+
+[join](https://discord.gg/ryKUN33mW) for birthday party event awwww
   
 </p>
