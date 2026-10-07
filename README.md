@@ -17,7 +17,7 @@ my bakas
 
 my doomed polycule
 
-**‹[june](https://github.com/reiningcloud)ㅤ [meii](https://github.com/THED4RKSAINT)ㅤ [whit](https://github.com/DirectorWifies)ㅤ [rae]()ㅤ [fayne](https://github.com/duxlucens)𝟹**
+**‹[june](https://github.com/reiningcloud)ㅤ [meii](https://github.com/DearMeii)ㅤ [whit](https://github.com/DirectorWifies)ㅤ [rae]()ㅤ [fayne](https://github.com/duxlucens)𝟹**
 
 <div align="center">
   
