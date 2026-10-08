@@ -15,9 +15,9 @@ my bakas
 **[pt car accident](https://www.detectiveboard.io/public-board/3748e0b5-849d-402c-84ee-a8a89d18c773)**
 
 
-my doomed polycule
+my doomed polycule + ft random kid
 
-**‹[june](https://github.com/reiningcloud)ㅤ [meii](https://github.com/DearMeii)ㅤ [whit](https://github.com/DirectorWifies)ㅤ [rae]()ㅤ [fayne](https://github.com/duxlucens)𝟹**
+**‹[june](https://github.com/reiningcloud)ㅤ [meii](https://github.com/DearMeii)ㅤ [whit](https://github.com/DirectorWifies)ㅤ [rae]()ㅤ [fayne](https://github.com/duxlucens)𝟹** + **[xy](https://github.com/Navistel)**
 
 <div align="center">
   
